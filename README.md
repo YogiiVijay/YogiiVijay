@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @YogiiVijay
 - 👀 I’m interested in sprituality & leadership.
 - 🌱 I’m currently learning business analytics.
-- 📫To reach me my linked.in AC:
+- 📫To reach me my linked.in AC: Treasure beast
 - 😄 Pronouns: Gujarati > Hindi > English.
 - ⚡ Fun fact: "While the world keeps scrolling, i'll keep rolling- chasing dreams, not distractions." 
 
