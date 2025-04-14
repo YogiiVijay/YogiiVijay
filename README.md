@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @YogiiVijay
+- 👀 I’m interested in sprituality & leadership.
+- 🌱 I’m currently learning business analytics.
+- 📫To reach me my linked.in AC:
+- 😄 Pronouns: Gujarati > Hindi > English.
+- ⚡ Fun fact: "While the world keeps scrolling, i'll keep rolling- chasing dreams, not distractions." 
+
+<!---
+YogiiVijay/YogiiVijay is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
