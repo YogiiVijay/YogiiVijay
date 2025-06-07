@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YogiiVijay
-- 👀 I’m interested in sprituality & leadership.
+- 👀 I’m interested in Business & leadership.
 - 🌱 I’m currently learning business analytics.
 - 📫To reach me: My linkedin account: Treasure beast
 - 😄 Pronouns: Gujarati > Hindi > English.
